@@ -2,7 +2,7 @@
 
 **CS Engineering Student at Ensimag – Grenoble INP** | One of France's top-ranked engineering schools for Computer Science & Applied Mathematics.
 
-Currently in my 2nd year (ISI track – Computer Systems Engineering), building real-world projects and growing as a freelance developer on Upwork.
+Currently in my 3rd year (ISI track – Computer Systems Engineering), building real-world projects and growing as a freelance developer on Upwork.
 
 ---
 
